@@ -1,1 +1,1 @@
-# [username.github.io] (https://github.com/fdaniia/username.github.io/)
+# [username.github.io] (https://fdaniia.github.io/username.github.io/)
